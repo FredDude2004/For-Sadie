@@ -80,7 +80,9 @@ Midterm wasn’t terrible, I’m still cooked tho. Despite exams I feel calm (I�
 - Turn in data structures HW and do a LeetCode problem (1.25 hours)
 - Last minute studying for english midterm (15 min) (this is all the studying I’ve done for this 😂)
 - Math HW (3-4 hours)
-- Learning about Raspberry Pis and radios for a project I’m planning over fall break (45 min) Withdrawals:
+- Learning about Raspberry Pis and radios for a project I’m planning over fall break (45 min)
+
+#### Withdrawals:
 - Disappointment
 - BOREDOM (I’ve been stranded on campus for 7 hours now)
 
