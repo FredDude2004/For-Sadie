@@ -2,7 +2,8 @@
 
 ## Editing My Creative Task 
 Click on the folder named "Creative Task" and in there are four files, <br>
-**__SPOILER - Character Sheet and Plot.pdf:**__   This has what a planned out before I wrote anything (I tried just going for it and it felt illegal) <br>
+
+_**SPOILER - Character Sheet and Plot.pdf:**_   This has what a planned out before I wrote anything (I tried just going for it and it felt illegal) <br>
 #### SPOILER FREE - Character Sheet.pdf: 
   Just has a basic character sheet so you can keep track of everyone, and see what I was picturing in my head when describing them <br>
 #### Creative Narrative RD - HONR 391.pdf: 
