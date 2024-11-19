@@ -9,9 +9,9 @@ Click on the folder named "Creative Task" and in there are four files, <br>
 <b u>Creative Narrative RD - HONR 391.docx:</b>     You can download this File to edit my terrible grammar. 
 
 Work on this at your leisure (though its due on the 23rd but I can request up to five extensions), I put all of my built up creative power from the 
-last 19 years of my life into this. I want total transparency if you think the story blows hot monkey oil then please tell me, and give suggestions on how to fix it.
-I did make it pretty long, the word requirment was only 3,000 and I'm at 7,000 and theres still a lot I need to add. Also more opinions are helpful, so if there are 
-other people that are willing to read it tha'd be splendid.  
+last 19 years of my life into this. I want total transparency if you think the story blows hot monkey oil, then please tell me, and give suggestions on how to fix it.
+I did make it pretty long, the word requirment was only 3,000 and I'm at 7,000 and there's still a lot I need to add. Also more opinions are helpful, so if there are 
+other people that are willing to read it that'd be splendid.  
 
 
 ## Digital Media fast 
