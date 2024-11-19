@@ -3,6 +3,10 @@
 #### Editing My Creative Task 
 Click on the folder named "Creative Task" and in there are four files, <br>
 
+
+<b><u>This text will be bold and underlined</u></b>
+
+
 <b u>SPOILER - Character Sheet and Plot.pdf:</b>  This has what a planned out before I wrote anything (I tried just going for it and it felt illegal) <br>
 <b u>SPOILER FREE - Character Sheet.pdf:</b>  Just has a basic character sheet so you can keep track of everyone, and see what I was picturing in my head when describing them <br>
 <b u>Creative Narrative RD - HONR 391.pdf:</b>  You can read the story right here, <br>
