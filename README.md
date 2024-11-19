@@ -1,6 +1,5 @@
 # For-Sadie
 
-<bl>
   
 ### Editing My Creative Task 
 Click on the folder named "Creative Task" and in there are four files, <br>
