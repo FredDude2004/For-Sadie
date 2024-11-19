@@ -14,7 +14,7 @@ last 19 years of my life into this. I want total transparency if you think the s
 I did make it pretty long, the word requirment was only 3,000 and I'm at 7,000 and there's still a lot I need to add. Also more opinions are helpful, so if there are 
 other people that are willing to read it that'd be splendid.
 
-If you have any other questions just text or call 
+If you have any other questions just text or call, and Thank You very much for this :)
 
 <br>
 <br>
